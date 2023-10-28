@@ -4,7 +4,7 @@ In the fast-evolving digital landscape, eBooks have become an integral part of t
 
 ## A Brief Introduction to Alpha eBook
 
-Established in 2017, Alpha eBook has quickly risen to prominence as a leading service provider in the realm of eBook conversion. With a dedicated team of professionals and a commitment to excellence, Alpha eBook has set itself apart in the industry.
+Established in 2017, [**Alpha eBook**](https://www.alphaebook.com/) has quickly risen to prominence as a leading service provider in the realm of eBook conversion. With a dedicated team of professionals and a commitment to excellence, Alpha eBook has set itself apart in the industry.
 
 At the core of Alpha eBook's services is its expertise in a wide range of eBook formats. Whether you're looking for ePub conversion, Mobi conversion, Kindle conversion, or even complex fixed layout eBook conversion, Alpha eBook has the knowledge and experience to meet your needs. Their comprehensive suite of services includes eBook conversion, eBook formatting, fixed layout eBook conversion, print to eBook conversion, book composing, and typesetting. Let's delve deeper into what makes Alpha eBook a preferred choice for authors and publishers alike.
 
@@ -26,7 +26,7 @@ For complex layouts, especially in eBooks with intricate designs, children's boo
 
 ## Print to eBook Conversion
 
-Alpha eBook's [print to eBook conversion](https://www.alphaebook.com/printed-book-to-ebook/) service is ideal for authors and publishers looking to make their print materials available in the digital realm. Whether it's a novel, a manual, or a magazine, Alpha eBook can help you convert your print content into a digital eBook format efficiently.
+Alpha eBook's [**print to eBook conversion**](https://www.alphaebook.com/printed-book-to-ebook/) service is ideal for authors and publishers looking to make their print materials available in the digital realm. Whether it's a novel, a manual, or a magazine, Alpha eBook can help you convert your print content into a digital eBook format efficiently.
 
 ## Book Composing and Typesetting
 
